@@ -16,7 +16,7 @@
 
 ### 📫 Let's Connect
 - ✉️ Email: *jeet@example.com*  
-- 🔗 (https://www.linkedin.com/in/jeet-shah-89226624b/)]() 
+- 🔗 (LinkedIn) (www.linkedin.com/in/jeet-shah-89226624b) 
 
 ---
 
