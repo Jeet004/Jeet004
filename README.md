@@ -15,8 +15,8 @@
 ---
 
 ### 📫 Let's Connect
-- ✉️ Email: *jeetshah1005@gmail.com*  
-- 🔗 (LinkedIn) (www.linkedin.com/in/jeet-shah-89226624b) 
+- ✉️ Email: [jeetshah1005@gmail.com](mailto:jeetshah1005@gmail.com)  
+- 🔗 [LinkedIn] (www.linkedin.com/in/jeet-shah-89226624b) 
 
 ---
 
